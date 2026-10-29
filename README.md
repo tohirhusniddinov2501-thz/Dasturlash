@@ -1,0 +1,2 @@
+# Dasturlash
+Dasturlash fanidan topshiriqlar
